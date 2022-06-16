@@ -1,1 +1,1 @@
-# Second Seminar Repository
+# Second Seminar Repository :)
